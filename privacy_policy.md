@@ -85,4 +85,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 
 If you have any questions or suggestions regarding this Privacy Policy, please contact us:
 
-**Email:** [berry66a@gmail.com](mailto:saudamfosi@gmail.com)
+**Email:** [saudamfosi@gmail.com]
